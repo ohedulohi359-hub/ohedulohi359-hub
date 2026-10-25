@@ -1,4 +1,4 @@
-# Hi, I'm Ohedul Ohi 👋
+# Assalamualikum, I'm Ohedul Ohi 👋
 
 🎓 EEE Student | 💻 Learning Programming | ⚡ Exploring Electronics
 
